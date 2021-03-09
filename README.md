@@ -31,4 +31,4 @@ Welcome to RPGZONE server!
  
  では、楽しいRPG LIFEを！
  
- 2021/03/07/16:44 最終更新
+ 2021/03/09/17:32 最終更新
