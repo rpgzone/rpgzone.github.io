@@ -14,7 +14,7 @@ Welcome to RPGZONE server!
 できるだけ楽しく平和に遊ぶこと。それだけです。
  
 ・ワールドの欠陥を見つけた場合は報告！
-　鯖主に報告をお願いいたします。Discord → (https://discord.gg/ywYNpQh53B)
+　鯖主に報告をお願いいたします。Discord → (https://discord.gg/qaugrQE39x)
  
  これを守ればOKです！ルールは更新される場合があるので、定期的に見てもらえると嬉しいです！
  
